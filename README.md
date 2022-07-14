@@ -17,5 +17,5 @@ Esta pasta será atualizada constantemente, alguns projetos não poderei colocar
 [Linkedin](https://www.linkedin.com/in/seimonitai/) <br/>
 [Instagram](https://www.instagram.com/seimonitai/?hl=en) <br/>
 [website-portfólio](https://seimonathaydedev.web.app/) <br/>
-
+[E-mail](cbimoh@bk.ru)
 
